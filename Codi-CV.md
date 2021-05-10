@@ -29,3 +29,17 @@ like Bill Gates,Sreve Jobs,Mark Zuckerberg or Jeff Bezos, Elon Musk, etc.
 
 - windows
 - linux
+
+## languages
+
+- Arabic
+- English
+
+#### My accounts on social media
+
+
+[Whatsapp](http://wa.ma/+9613120557 "Whatsapp")
+
+[Facebook](https://www.facebook.com/maher.aliwe.7/ "Facebook")
+
+[Instagram](https://www.instagram.com/mah_ali4/ "Instagram")
